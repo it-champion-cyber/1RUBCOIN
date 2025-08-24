@@ -1,0 +1,2 @@
+# 1RUBCOIN
+1RUB
